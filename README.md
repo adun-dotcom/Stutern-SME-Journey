@@ -1,0 +1,1 @@
+# Stutern-SME-Journey
